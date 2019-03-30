@@ -7,6 +7,6 @@ Akash Gopinath Rao
 
 Somnath Krishna Sarkar
 
-Reddi Narsimha 
+Reddi Narasimha Prasad Palempalli
 
-Ananth Kumar
+Ananth Kumar Kenguva
